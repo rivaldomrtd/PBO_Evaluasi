@@ -1,4 +1,4 @@
 # PBO_Evaluasi
 
-Eker ekeren Dewe yo wkwk
+Eker ekeren Dewe yo. 
 Yok tinggal bikin laporan dah
